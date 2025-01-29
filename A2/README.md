@@ -1,5 +1,7 @@
 # Assignment 2
 
+![pic1](https://64.media.tumblr.com/26930e8bbd767c57dc9def854e11fb70/tumblr_p4i94aESZq1x4pfzqo1_1280.gifv)
+
 ### Original Poem
 
 One must have a mind of winter
